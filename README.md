@@ -1,5 +1,5 @@
 Hi, I'm Tien-Hao Chen.
 
-A Mechanical Engineer pursuing a career in robotics, striving to revitalize Taiwan’s traditional industries—once the backbone of its economy but now challenged by labor shortages and rising minimum wages. By introducing robotics, I aim to help these industries transition to high-end, customized production, enabling smarter and more efficient manufacturing processes.
+I am a Mechanical Engineer passionate about pursuing a career in robotics. My goal is to revitalize Taiwan’s traditional industries—once the backbone of its economy but now facing challenges like labor shortages and rising minimum wages. Through the integration of robotics, I aim to help these industries transition to high-end, customized production, fostering smarter and more efficient manufacturing processes.
 
-A former college baseball player who struggled with time management, leading to a drop in GPA. However, I turned this challenge into a learning opportunity, developing strong scheduling skills to balance academics and athletics successfully.
+As a former college baseball player, I experienced the challenges of balancing athletics and academics, which initially impacted my GPA due to poor time management. However, this adversity became a turning point, enabling me to develop strong scheduling and prioritization skills that allowed me to excel in both areas.
